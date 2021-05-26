@@ -1,3 +1,3 @@
 Welcome to Github!
-May Java always love you.
+May Java bless you.
 No more bug,please.🙏🙏🙏
